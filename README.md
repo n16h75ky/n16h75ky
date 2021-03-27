@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @n16h75ky
 - 👀 I’m interested in game development.
-- 🌱 I’m currently learning creating black metal songs.
+- 🌱 I’m currently learning black metal song creation.
 - 💞️ I’m looking to collaborate on NOTHING.
 - 📫 How to reach me ... but why?
 
